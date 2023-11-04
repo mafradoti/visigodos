@@ -1,0 +1,1 @@
+Los elementos arquitectónicos más importantes son: 
